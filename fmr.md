@@ -1,3 +1,3 @@
 FMR
 
-[download peanut episode](https://archive.org/details/mister-rogers-neighborhood-complete_20210512/1613.mp4)
+[download peanut episode](https://ia804504.us.archive.org/21/items/mister-rogers-neighborhood-complete_20210512/1613.mp4)
